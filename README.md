@@ -3,5 +3,5 @@
 This is simple readme file
 sdsdfsdf sdfsdfs sdfsfs
 
-Just some updates
+I hope this is not shit
 kokot jebe
